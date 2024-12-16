@@ -1,0 +1,1 @@
+# MesinTuring_Deretaritmatika
